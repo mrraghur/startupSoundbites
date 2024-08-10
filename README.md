@@ -1,0 +1,2 @@
+# startupSoundbites
+Things founders say. 
