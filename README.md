@@ -232,6 +232,194 @@ additionally "We've growing 100% month-over-month"  --> we had $1,000 ARR and no
 "We need to reorganize the structure." -> "We run out of our budget so we need to layoff you guys and replace it with the cheaper one."
 
 
+"We are fully compliant with all the applicable laws" _> we are still figuring out which laws are applicable and will complete paper work during dilgence!
+
+
+"We are working on launching a product similar to Facebook in 2 months" —>We have no idea of what kind of product this is going to be and no roadmap for launch.
+
+
+
+"We're visionaries with a track record for success." -> We were having beers one night and thought we could make money from this.
+
+
+
+"We work with Microsoft, Google, General Electric, Disney" --> emails from these companies are on our mailing list, and a guy working for Disney is using the free trial right now
+
+
+
+
+“we’re bootstrapped” —> it’s not that we don’t have the money, we just like to spend it on other stuff
+
+
+
+
+"We have a clear path to profitability" —> We have no idea how we're going to make money, but we're hoping for a miracle.
+
+
+
+"We're leveraging AI technology." —> We're still trying to figure out how AI actually works for our business model. 😂
+
+
+
+
+«We could be profitable as soon as next month if we wanted to but it’s not the strategy» —> I would need to fire 90% of my team and then no more business 🤡
+
+
+
+
+'we're about to close our round' - we've sent our deck to a couple of investors but no one has replied yet
+
+
+
+
+
+We are a tech-driven or tech-first company --> some of our data is in excel sheets.
+
+
+
+
+
+“few industry experts agreed to have coffee with us once.” Should add “for options worth 10% of the company.”
+
+
+
+
+
+„We are venture backed and on our way to profitability“ —> Our EBIT margin is minus 100%, ie our cost is twice as high as our revenues
+
+
+
+“It’s on our road map.”
+We don’t do that but have heard about it enough times to realize that we probably should - not that we’ve taken any steps to actually execute on delivery. 😀
+
+
+
+
+"We are hiring" —> We want everyone to think that we're a fast-growing company.
+
+
+
+
+
+"We are aggressively hiring" -> "A lot of people are leaving because the internal culture is crap"
+
+
+
+
+
+“Our staff are extremely loyal” —> no one else thinks we have talents worth attracting 🤭
+
+Or —> we are over-paying them 😅
+
+
+
+
+
+“We’re raising another round at the same ARR as last time due to streamlining our product offerings”
+
+—-> we are still figuring out what our product is, give us lots of runway for as little % of my company as possible
+
+
+
+
+
+
+"We took a successful exit" --> We lost vision and couldn't see profitability so we put it on someone else to burn their money and time
+
+
+
+
+
+"Our founders have very niche experience for us to bootstrap this" - founders work full-time jobs and barely have time to focus on this business
+
+
+
+
+
+"We've worked with Apple, Samsung, and all the other tech giants in the space" --> You had an intro call and haven't even completed a project together.
+
+
+
+Instead of cash salary, we will give ESOPs. You will make tons of money in few years through ESOP -> You will end up working for peanuts and ESOPs wont be cashable.
+
+
+
+
+Our product is revolutionary.” —> We’re still figuring out what problem it actually solves.
+
+
+
+"I sleep on the office floor." --> I don't know how to delegate
+
+"I accomplished 357 tasks this week." --> I'm too lazy to hire an EA
+
+
+
+“Money doesn’t matter “ -> we don’t have any
+
+
+"Our team will verify this situation." Said the CEO of a start-up with zero employees and one or two contractors. 
+
+
+
+
+We have a fantastic diversity policy -> we have a policy but we don't have any diversity in the management team
+
+
+
+
+
+« We don’t need Investors anymore » —> we raised a lot of money but still looking to make money
+
+
+
+“We’re solving a real problem.” —> We came up with a problem that justifies our product’s existence.
+
+
+
+
+
+„We’re currently not fundraising. Instead, we’re in the trenches building a great company“ —> Our product and revenue are a catastrophe, nobody would even consider giving us a penny
+
+
+
+
+‘We’re the Uber of [insert industry]’ —> We don’t have a unique idea, just a catchy tagline.” 
+
+
+
+
+We make sure our employees really enjoy and have a healthy work environment - as long as they do not complain, don’t ask for a raise and do not want to do any trainings or other things we need to invest in.
+
+
+
+From my perspective: “We have already built strong relationships with tier 1 media” -> We were once quoted briefly in TechCrunch
+
+
+
+"We have an unlimited leave policy" -> I decide when you come and go and I hope you never ask.
+
+
+
+
+“We’re using cutting-edge AI / machine learning” —> We analyze data in Excel
+
+"Our customer churn is low." → We only had 10 customers to start with, so losing 2 of them doesn’t seem too bad.
+
+“We have several solid LOIs in place!” —> no one is willing to to pay us for anything and 3 of them are my friends..
+
+"We're the largest player in the entire country" -> We're the only player operating in a hyper specific niche
+
+"We're seeing strong traction in the market." => My friends and family finally signed up.
+
+I work 80 hours a week because I'm so passionate about my startup —> I haven't had a weekend off in months and my social life is non-existent, but at least I have my startup to keep me company.
+
+"Our product is under testing with 5 design partners to deliver an MVP."--> Dad, Mum, Sister, Best Friend and Dog become design partners.
+
+"Our TAM is X billion." We have no idea what our target market is. 
+
+
+
 
 
 
