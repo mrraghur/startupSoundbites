@@ -419,6 +419,236 @@ I work 80 hours a week because I'm so passionate about my startup —> I haven't
 "Our TAM is X billion." We have no idea what our target market is. 
 
 
+**If we capture 0,75% of the niche market, our ARR will be $ 750 Million in just three years.
+
+We need just smart money.
+
+We are the next unicorn.
+**
+
+
+**“Our customers keep coming back to us”. 
+
+
+“They’ve been following up for months on the one small issue they wanted us to fix. “
+
+**
+
+
+
+
+“We only hire A players” -> my best friends from college make up my leadership team.
+
+
+
+Our team has 100 yrs of experience in … (and we have counted our kindergarten time twice…)
+
+
+
+We’re pivoting to new opportunities —> Our original idea flopped, so we’re scrambling to find something that sticks.
+
+* We have 10x growth = 1 x 10 (descriptive numbers)
+* The disruptive and revolutionary words but have no demand generation plan and dependent on paid ads
+
+* 
+“We just shipped our most requested feature” —> One user requested the feature saying they would upgrade if we have it.
+
+
+
+
+We’re scaling rapidly! - We’ve had a few viral posts, but our actual user growth is more of a trickle. 😂 
+
+
+
+"We already reached PMF are about to start scaling" - made 5 sales but never renewed a deal.
+
+
+
+"We're leveraging cutting-edge technology." —> We just discovered WordPress plugins. 😀 
+
+
+
+
+
+We provide comprehensive insights & actionable feedback —> Pays us to create a Google Form/Survey Monkey
+
+
+
+We're in stealth mode." —> We haven't figured out what we're selling yet.
+
+
+"We're a family here" --> Get ready for 60 hour work weeks and open disrespect
+
+
+
+“We’re scaling rapidly.” —> We hired a few more people but haven't yet seen significant growth in revenue or users. 
+
+
+
+'Sign up to know more about product that could skyrocket your revenue'-Landing page validation
+
+
+
+
+"We offer flexible work hours and remote work" --> You need to come to the office at least 3 days per week and the only flexibility that you'll receive is flexibility when you *don't* work. 
+
+
+
+"The TAM is $200B, so if 1% buys our solution, that's $2B" -> The market is $50M in North America and we only sell locally
+
+
+
+
+"We're making the world a better place through.." --> We're not, but we loved the joke on Silicon Valley
+
+
+
+"we are sure we will capture 10% of this $20 Billion TAM, the opportunity is huge
+
+----> we do not know how to estimate our market , we haven't cracked our ICP and haven't decided the pricing
+
+
+
+
+"We’re moving fast and breaking things." → We’re rushing and making a lot of mistakes.
+
+
+
+
+
+“Our onboarding is fully customised” —> we’re putting your info in an Google Sheey manually
+
+
+
+
+One I'd add: “We’re receiving strong investor interest” —> we had two VCs say ‘we’ll keep in touch.’ 
+
+
+
+"We are diversity first" - All management white from same biz school 🤣 
+
+
+
+“Our product has amazing customer reviews.” —> We asked our friends and family to leave us 5-star reviews.
+
+
+
+We have strong c-level executive team -> Marketing team consist of only the "CMO"
+
+
+
+"We're hiring" -> We're threw out a job posting and are lowballing every single candidate to see if we can find a desperate soul that will take it. We want top talent but can't really afford it
+
+
+
+
+
+“We’re always hiring.” —> just to create a image for our investors that we’re growing.
+
+
+
+
+"Our new pitch is really sticky!" —> A few friendly people on a Zoom call nodded and said, "Sounds promising." 
+
+ "We're pre-revenue" —> We haven't figured out how to make money yet.
+
+
+
+"We have existed for 6 months and are already leader of our market" -> There is no market
+
+“We work hard and play hard”
+
+→ You will get overworked and underpaid
+
+
+"NYT Best-Seller" —> Paid PR firm and/or industry plant via inflated numbers
+
+
+
+Guillaume Moubeche how about listing universities that use your software just because one postdoc downloaded the code
+
+
+
+
+I'm stressed af and can't see the end in sight -> I'm stressed af and love it
+
+
+
+
+
+
+"We are disrupting an entire industry" —> We have cool tech, we just don't yet know if somebody needs it
+
+
+
+"Our investors bring more than just money to the table" - Our investors bring headaches and problems.
+
+✨
+“As featured in [Bloomberg|Tech Crunch|Local Paper]”
+
+We’ve spent more time trying to get publicity than selling to customers and earning revenue.
+
+
+
+Another banger: "We're closing this round soon." -> We're still looking for our first cheque. 
+
+
+I’d add: “We’re getting a lot of inbound interest from VCs.” —> We sent out a thousand cold emails, and a couple of them replied.
+
+
+
+"We use chatGPT and have a nice UI" 90% of "AI" startups.
+
+
+
+Flat organizational structures = you'll have your title (and most likely salary) until the exit
+
+“Our customers love us” —> one customer said “ looks interesting” after a demo.
+
+
+We smashed double digits growth YoY--> we achieved 07% growth
+
+
+“We have AI” - we have people pretending to be the AI
+
+
+
+ "We have a great team, young energy" ---> All college kids doing internships being paid in "experience". 
+
+
+ 
+We can detect 200 diseases with just one drop of blood — just slap our logo sticker on a Siemens analyzer! Shoutout to our 'beloved' Elizabeth 😂
+
+
+
+"we have no direct competitor" --> Our customer either use Excel or billion dollar revenue SaaS/incumbents
+
+
+20h
+We don't need marketing, this is so good it will sell itself
+
+I can't start a company without VC funding
+
+I don't need to build my personal brand because I'm building a company brand (this one is just stupidity, not a lie)
+
+
+
+
+Unlimited PTO: But we’ll subtly question your commitment if you actually take it.
+
+“We’ve received loads of great feedback from customers!” —> Our CSMs are swamped with complaints
+
+
+
+We are a startup ... started 9 years ago :D
+
+
+
+Guillaume Moubeche Here's another one: 'We’re not concerned about competition.' —> We’re terrified but hope our confidence can keep the investors calm." 😉 
+
+
+
+
 
 
 
